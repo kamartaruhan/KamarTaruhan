@@ -2,4 +2,4 @@ Daftar situs agen PKV Games domino qq poker online terbaik dan terpercaya di ind
 
 Situs KamarTaruhan merekomendasikan kepada para pemain judi online untuk bergabung di situs qq online terbaik yang telah di sediakan. situs ini mempermudah para member untuk mencari ruang untuk bermain. situs yang di rekomendasikan melainkan situs yang sudah di pilih karena terbaik, terpercaya dan unggul. terlebih lagi situs ini tidak sembarangan dalam memilih situs qq online. kunjungi situs ini dan dapatkan KODE ID PRO yang telah di sediakan di situs ini.
 
-http://kamartaruhan.com/
+http://104.223.76.202/
